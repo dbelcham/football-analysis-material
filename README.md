@@ -22,3 +22,4 @@
 - StatsBomb Mailbag - Who Should Arsenal Buy in Midfield + More Transfer Shopping - https://statsbomb.com/2016/04/statsbomb-mailbag-who-should-arsenal-buy-in-midfield-more-transfer-shopping/
 - The Frustrating Promise of Analytics: Soccer Has a Left-Handed-Pitcher Problem - https://grantland.com/the-triangle/soccer-state-of-analytics-left-handed-pitcher-problem-atletico-madrid-diego-simeone/
 - Let's talk about expected goals - https://cartilagefreecaptain.sbnation.com/2015/4/10/8381071/football-statistics-expected-goals-michael-caley-deadspin
+Peter McKeever's blog - http://petermckeever.com
